@@ -9,4 +9,4 @@
 ![](Social%20media%20website/Social%20Media%20Website%20(3).svg)
 ![](Social%20media%20website/Social%20Media%20Website%20(4).svg)
 ![](Social%20media%20website/Social%20Media%20Website%20(5).svg)
-![](Social%20media%20website/Social%20Media%20Website%20(6).svg)
+![](Social%20media%20website/Social%20Media%20Website(6).svg)
